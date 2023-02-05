@@ -27,6 +27,6 @@ I understand that this request may cause inconvenience, and I want to express my
 I want to thank you for your understanding during this difficult time. I am eagerly awaiting your response.
 
 
-Best regards,
 
+Best regards,
 Md. Naushad Ahamed 
